@@ -1,4 +1,5 @@
 Privacy Policy
+
 Last Updated: July 22, 2026
 
 Shree Ram Shalaka ("we," "our," or "app") respects your privacy and is committed to protecting it. This Privacy Policy outlines how your information is managed when you use our mobile application.
