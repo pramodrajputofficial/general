@@ -1,4 +1,4 @@
-Terms & ConditionsLast Updated: July 21, 2026
+Terms & ConditionsLast Updated: July 22, 2026
 
 Please read these Terms & Conditions carefully before using the Shree Ram Shalaka mobile application. 
 By downloading, accessing, or using the app, you agree to be bound by these terms.
